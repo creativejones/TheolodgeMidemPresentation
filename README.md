@@ -1,2 +1,0 @@
-# TheolodgeMidemPresentation
-GitHub Pages
